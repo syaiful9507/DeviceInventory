@@ -1,0 +1,1 @@
+aknsumenep.ac.id
